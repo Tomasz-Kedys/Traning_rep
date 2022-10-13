@@ -1,1 +1,1 @@
-# Traning_rep
+# Paragon z warzywniaka
